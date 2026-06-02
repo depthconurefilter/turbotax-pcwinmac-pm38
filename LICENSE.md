@@ -1,4 +1,4 @@
-# 
+# Premium TurboTax extensions for Mac OS | Exclusive TurboTax extensions for PC Windows. Featuring pdf conversion and pdf encryption — optimized for maximum performance on every platform.
 
 
 
